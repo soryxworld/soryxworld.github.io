@@ -1,1 +1,0 @@
-# soryxworld.github.io
